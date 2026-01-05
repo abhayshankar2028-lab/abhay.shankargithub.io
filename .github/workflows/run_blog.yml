@@ -1,1 +1,41 @@
+name: Auto Blog Poster
+on:
+  workflow_dispatch: # Keeps manual button active
+  schedule:
+    # Changed from '0 * * * *' to '27 * * * *'
+    # This runs at minute 27 of every hour (e.g. 1:27, 2:27)
+    - cron: '27 * * * *'
+
+jobs:
+  update-blog:
+    runs-on: ubuntu-latest
+    permissions:
+      contents: write
+    steps:
+      - name: Checkout Code
+        uses: actions/checkout@v4
+        with:
+          fetch-depth: 0 
+
+      - name: Setup Python
+        uses: actions/setup-python@v5
+        with:
+          python-version: '3.9'
+
+      - name: Install Libraries
+        run: pip install feedparser huggingface_hub requests
+
+      - name: Run Script
+        env:
+          HF_TOKEN: ${{ secrets.HF_TOKEN }}
+        run: python main.py
+
+      - name: Commit and Push Changes
+        run: |
+          git config user.name "github-actions[bot]"
+          git config user.email "github-actions[bot]@users.noreply.github.com"
+          git add _posts/*.md
+          git commit -m "Hourly Indian update" || echo "No changes found"
+          git pull --rebase origin main
+          git push
 
