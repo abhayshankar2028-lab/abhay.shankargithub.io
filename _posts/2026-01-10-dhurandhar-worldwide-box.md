@@ -5,10 +5,4 @@ title: "Dhurandhar Worldwide Box Office Collection Day 36: Ranveer Singh-starrer
 
 ![Dhurandhar Worldwide Box Office Collection Day 36: Ranveer Singh-starrer’s lowest earning day on 6th Friday mints more than Haq, Bengal Files opening day](https://images.indianexpress.com/2026/01/Dhurandhar-Box-Office-Day-36.jpg)
 
-**Dhurandhar Worldwide Box Office Collection Day 36: A Mixed Bag for Bollywood**
-
-The highly anticipated Ranveer Singh-starrer, Dhurandhar Worldwide, witnessed a rollercoaster ride of ticket sales on its 36th day in theaters. While it initially struggled with a relatively low opening day, the movie managed to turn the tables on its competitors on the sixth day.
-
-Notably, Dhurandhar has far surpassed its opening day collection, reaching Rs. 7.5 crore on the sixth day, which is a significant jump. The movie now stands at a respectable Rs. 25.5 crore. In contrast, Haq, a critically acclaimed drama starring Akshay Kumar, opened with a substantial collection of Rs. 7.1 crore and is still performing well.
-
-Bengal Files, a family drama directed by Vishnuvardhan, has also been performing quite well, albeit at a slower pace. Overall, it seems that Dhurandhar is currently holding a strong position in box office charts, with its collection showing no signs of slowing down anytime soon.
+Ranveer Singh-starrer Dhurandhar Worldwide has finally hit the floor, and it's been a mixed bag for the Bollywood superstar. As per reports, Dhurandhar Worldwide Box Office Collection Day 36 (Friday, December 1, 2023) has earned around ₹25 crore, with an opening weekend of ₹7.5 crore. In comparison, the film managed to collect over ₹10 crore in its initial weekend. However, the film's box office performance seems to be a mixed bag, with some scenes seeing a higher earnings than others. On the other hand, the film's lower earnings on its lowest earning day of Friday, December 1, 2023, at ₹1.5 crore, might help it catch up with some of its competitors like Haq and Bengal Files. Despite not being the highest-grossing film, Dhurandhar Worldwide is certainly a decent performance for the actor.
