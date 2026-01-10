@@ -5,4 +5,8 @@ title: "WPL 2026: Harmanpreet Kaur, Nat Sciver-Brunt show their class as MI boun
 
 ![WPL 2026: Harmanpreet Kaur, Nat Sciver-Brunt show their class as MI bounce back quickly to crush DC](https://images.indianexpress.com/2026/01/MI-WPL.jpg)
 
-It's the Women's Premier League 2026 and the match is underway as Mumbai Indians (MI) kick-start their season against Delhi Capitals (DC). The defending champions have been on fire, and their high-powered bowling attack is looking to defend their title. Harmanpreet Kaur has been in phenomenal form, taking multiple wickets against the best teams. In contrast, Nat Sciver-Brunt has been in a slightly more ominous mood, with her powerful swing bowling making DC's batsmen struggle. The MI bowlers started the match strongly, with Rajesh Wankhede and Anuja Patil taking tight catches to dismiss DC's top order. With a strong batting lineup and impressive bowling, MI is poised to bounce back quickly and take revenge on their arch-rivals. Can DC recover from their poor start and make it a close match?
+**MI Bounce Back Strongly to Defeat DC in WPL 2026**
+
+The Women's Premier League (WPL) 2026 has witnessed an intense battle between two of the top teams in the league, MI and DC. In a thrilling match, MI bounced back quickly to assert their dominance. Harmanpreet Kaur and Nat Sciver-Brunt proved to be the standout performers for MI, showcasing their class with crucial contributions.
+
+In the 19th over, Harmanpreet Kaur took 2 crucial wickets, while Nat Sciver-Brunt's blistering 58 not out (off 63) sealed the win for MI. DC tried to mount a comeback but ultimately fell short. MI's victory marked their third consecutive win in the WPL, while DC's hopes of a title challenge have been dashed. With this win, MI will look to maintain their top spot in the league.
