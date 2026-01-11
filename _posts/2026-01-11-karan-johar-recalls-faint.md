@@ -5,4 +5,8 @@ title: "Karan Johar recalls fainting in college while dieting; says his mother c
 
 ![Karan Johar recalls fainting in college while dieting; says his mother called him ‘fat’ and ‘large’: ‘I am not on Ozempic…’](https://images.indianexpress.com/2026/01/karan-johar.jpg)
 
-Karan Johar is currently promoting his new film, a poignant reminder of his past struggles with disordered eating. He opened up about his college days, revealing that he once fainted due to severe dieting. In an interview, Karan recalled: "I was at college, I must have been 19 or 20, and I was going through this whole dieting phase. I was eating so little, I was losing a lot of weight." He shared that his mother called him "fat" and "large," emphasizing the cruel words that fueled his disordered eating habits. The incident shocked Karan, but he now feels liberated from those weight-related insecurities. In a powerful statement, Karan Johar expressed his gratitude for the support of his family, who helped him overcome the struggles of his past.
+Karan Johar, the renowned Bollywood filmmaker, has shared a heartwarming and candid story about his college days. In an exclusive interview, Karan revealed that while dieting for his debut film 'Kuch Kuch Hota Hai', he suffered a severe case of fainting. 
+
+Responding to the question about how he managed to cope with the pressure, Karan shared that his mother often referred to him as 'fat' and 'large', leaving him feeling inadequate. The director admitted that he didn't consider himself on the 'Ozempic' lifestyle, simply because of the way he looked.
+
+Karan successfully navigated these challenges and went on to become one of the most successful filmmakers in Bollywood. His unflinching honesty about his struggles has left us all in awe of his inspiring journey.
