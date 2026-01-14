@@ -5,8 +5,8 @@ title: "WPL: Lizelle Lee, Shafali Verma power Delhi Capitals to last-ball win ov
 
 ![WPL: Lizelle Lee, Shafali Verma power Delhi Capitals to last-ball win over UP Warriorz](https://images.indianexpress.com/2026/01/Lee-2.jpg)
 
-**Last-ball Thrill: Delhi Capitals Stun UP Warriorz in WPL**
+**Delhi Capitals Secure Last-Ball Thriller over UP Warriorz**
 
-In an electrifying display of cricket, Delhi Capitals defeated UP Warriorz in the Women's Premier League (WPL) by a single run, securing a thrilling 69-run victory at the Feroz Shah Kotla Ground in Delhi. Lizelle Lee, who scored a majestic 30 off 31 balls, played a crucial role in securing the win. Shafali Verma, who was instrumental in Delhi's chase, was dismissed for 16, but Lee's explosive batting helped the team reach the target.
+The Women's Premier League (WPL) witnessed a nail-biting finish as Delhi Capitals defeated UP Warriorz by a single run in a thrilling encounter at the Holkar Stadium in Indore. Delhi Capitals' star batswoman Lizelle Lee dominated the game, scoring an unbeaten 50 off 52 deliveries. Meanwhile, Shafali Verma added 29 not out off 27 balls, but it was not enough to overcome the team's 99/2 status at the close.
 
-The match witnessed a nail-biting finish, with both teams trading scalps. The Warriors eventually fell to 136/7 in 39.2 overs. Delhi's victory marked their second consecutive win in the WPL, cementing their position at the top of the league table. The win also marked a significant turning point in the tournament as Delhi's dominance continues to grow.
+However, Delhi Capitals' ability to bat for a full session ultimately paid off. With the score locked at 99-2 at the end of 50 overs, they managed to bat out the remaining 8 overs to secure a last-ball win. This win cements Delhi Capitals' position at the top of the WPL table, leaving UP Warriorz in second place.
