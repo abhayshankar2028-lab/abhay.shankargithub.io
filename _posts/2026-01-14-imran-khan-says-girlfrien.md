@@ -5,8 +5,7 @@ title: "Imran Khan says girlfriend Lekha Washington has been ‘crucial to his h
 
 ![Imran Khan says girlfriend Lekha Washington has been ‘crucial to his healing’: ‘To love truthfully, selflessly is empowering and healing’](https://images.indianexpress.com/2025/04/imran-khan.jpg)
 
-**Empowering Love: Imran Khan's Candid Response to Lekha Washington**
+Bollywood News: 
+In a recent interview, Pakistani cricketer Imran Khan expressed his gratitude towards his long-time girlfriend Lekha Washington, stating that she has been instrumental in his healing journey. The couple has been dating for several years and have maintained a strong bond despite his rise to fame. Khan highlighted that Lekha's love and support have been a driving force behind his personal growth and well-being. 
 
-In a heartwarming conversation, Pakistani cricketer and former cricketer-turned-politician, Imran Khan, expressed his gratitude towards his long-time partner, actress Lekha Washington. The couple's relationship has been filled with love, support, and dedication, and Khan has acknowledged the crucial role Lekha has played in his healing process.
-
-In a poignant statement, Khan shared, "To love truthfully, selflessly is empowering and healing." This profound message resonated deeply with Lekha, who has been a constant source of encouragement and love in Khan's life. As he continues to navigate the complexities of life, Khan's words of wisdom serve as a testament to the transformative power of love and partnership. Lekha's unwavering support has undoubtedly played a significant role in Khan's journey towards healing and self-discovery.
+He emphasized that to truly love and be loved, one must be selfless and open to receiving love without expectations. Khan also added that being true to oneself and embracing one's emotions is an empowering experience. His words echo the philosophy of his film 'Dil Dhadakne Do', which emphasizes the importance of self-discovery and unconditional love. With Lekha Washington by his side, Imran Khan seems to be on a path of personal healing and growth.
