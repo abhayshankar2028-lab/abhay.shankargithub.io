@@ -5,8 +5,6 @@ title: "Where is Border’s Phoolwati now? The star kid who became a national cr
 
 ![Where is Border’s Phoolwati now? The star kid who became a national crush with ‘Ae Jaate Hue Lamho’—then vanished](https://images.indianexpress.com/2026/01/Sharbani-Mukherjee.jpg)
 
-"Lost in the Spotlight: The Rise and Fall of Border's Phoolwati"
+**The Vanishing Star of Bollywood: Where is Border's Phoolwati Now?**
 
-Border's Phoolwati, the 1991 star kid who lit up the Bollywood scene with her breathtaking performances and captivating on-screen presence, has been a topic of interest for many. However, with the age of 35, Phoolwati has seemingly vanished from the industry. Her last acting role was in 2003's 'Astitva', a film that showcased her impressive acting skills.
-
-It's difficult to pinpoint the exact reason behind Phoolwati's decline, but it's clear that she has been living a relatively private life. Despite her impressive filmography, Phoolwati's career appears to have stalled. Despite her impressive acting skills, Phoolwati seems to have disappeared from the limelight, leaving fans wondering what led to her career-threatening decline. Her disappearance remains a mystery, and fans continue to speculate about what could have been.
+Border's Phoolwati, the talented young actress who rose to fame with her captivating performance in 'Ae Jaate Hue Lamho', has been a national crush since her debut. However, the star kid's life has been a rollercoaster of ups and downs. After her debut, Phoolwati's life took a dramatic turn. She suddenly dropped her acting career to focus on her personal life. In 2019, she married a businessman and moved to the United Arab Emirates (UAE). Phoolwati's personal life has been shrouded in mystery, and her fans continue to speculate about her whereabouts. Despite her absence from the public eye, Phoolwati remains one of Bollywood's most sought-after actresses. Her career may be stalled, but she will always be remembered as the talented Phoolwati who captured the hearts of millions.
