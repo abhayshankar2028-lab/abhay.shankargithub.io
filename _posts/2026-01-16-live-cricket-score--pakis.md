@@ -5,6 +5,8 @@ title: "Live Cricket Score | Pakistan vs England U19 World Cup 2026: Asian champ
 
 ![Live Cricket Score | Pakistan vs England U19 World Cup 2026: Asian champions PAK seek strong start](https://images.indianexpress.com/2026/01/pak-u19-acc.jpg)
 
-Pakistan, winners of the 2016 ICC Under-19 World Cup, have set their sights on a strong start in the 2026 edition of the tournament. The reigning champions look to build upon their impressive performance last year, which saw them lift the title to their 10th World Cup win. The Pakistan U19 team, consisting of talented youngsters, has been training diligently to make a deep run in the competition.
+**Live Cricket Score: Pakistan vs England U19 World Cup 2026**
 
-Against England, Pakistan U19 will look to assert their dominance, targeting a robust start in order to gain confidence. The team's captain, Ali Shafiq, has emphasized the importance of patience and discipline in order to deliver on their promise. The match is set to be an exciting encounter, with both teams eager to make a statement in the inaugural season of the 2026 World Cup.
+The highly anticipated match between Pakistan and England U-19 is underway, with both teams looking to secure a strong start in the tournament. The match is being held at the Melbourne Cricket Ground (MCG) in Australia, providing an ideal environment for the young cricketers to showcase their skills. The Pakistani U-19 team, led by experienced captain Sohail Akhtar, has been performing well in the tournament so far, while England's young team has shown impressive displays.
+
+As the match begins, the players are expected to take to the field with high intensity. With a healthy rivalry between the two teams, this match is expected to be a thrilling contest for cricket enthusiasts worldwide. Stay tuned for live updates and action-packed scores from the match.
