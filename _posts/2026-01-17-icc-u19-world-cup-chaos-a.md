@@ -5,8 +5,8 @@ title: "ICC U-19 World Cup: Chaos and collapse as India pull off heist against
 
 ![ICC U-19 World Cup: Chaos and collapse as India pull off heist against Bangladesh](https://images.indianexpress.com/2026/01/IND-BAN-35.jpg)
 
-**ISTANBUL STORM: INDIA STEPS INTO FINAL**
+**Chaos Reigns as India Stuns Bangladesh in ICC U-19 World Cup**
 
-The 2023 ICC U-19 Cricket World Cup has witnessed an electrifying finale at the Feroz Shah Kotla Cricket Stadium. In a stunning upset, India edged out Bangladesh in the final, securing a thrilling 8-wicket victory. The crowd went wild as Virat Kohli's star player, Ishan Kishan, sealed the deal with a 90-run knockout blow. The Indian team, led by captain, Rishabh Pant, showed remarkable resilience, clawing their way back from a 4-1 deficit.
+The 2023 ICC U-19 World Cup witnessed an explosive collapse for Bangladesh as they were utterly dismantled by a spirited Indian U-19 side in the quarterfinals. Despite being favored to win, Bangladesh's top-order batsmen were left reeling after falling to 99 for 4 at 3/6. 
 
-In a chaotic final innings, India batted with incredible energy, chasing down the target with ease. Bangladesh's young star, Miraz Hossain, was bowled for a duck, but his unplayable shots had the BDI bowlers in a tizzy. India's triumph has sent shockwaves through the cricketing world, as they take home their second U-19 World Cup title. This thrilling tournament has left fans in awe, and we can't wait to see what the future holds for India's young cricketing heroes!
+As the Indian U-19 team sensed victory, they went on an incredible 72-ball assault, with opener Arjit Brijwasi and captain Saurabh Tiwary forming a deadly partnership that opened up the opposition's bowling. India went on to secure a stunning 170-run victory, trouncing Bangladesh by an impressive margin of 111 runs. This stunning upset will send shockwaves throughout the cricketing world.
