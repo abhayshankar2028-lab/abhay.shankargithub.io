@@ -5,8 +5,8 @@ title: "ICC U-19 World Cup: Chaos and collapse as India pull off heist against
 
 ![ICC U-19 World Cup: Chaos and collapse as India pull off heist against Bangladesh](https://images.indianexpress.com/2026/01/IND-BAN-35.jpg)
 
-**India 18-run win: the stunning collapse of Bangladesh in the ICC U-19 World Cup**
+**ISTANBUL STORM: INDIA STEPS INTO FINAL**
 
-In a breathtaking display of cricketing drama, India pulled off a stunning 18-run win against arch-rivals Bangladesh in the Group C match at the ICC U-19 World Cup. The Indian U-19 side, led by star batsman Suryakumar Yadav, rode on a scintillating innings from Manish Pandey to register their second victory in as many matches. However, in a stunning collapse, the Bangladeshi team crumbled under pressure, losing 38 runs in 8 overs.
+The 2023 ICC U-19 Cricket World Cup has witnessed an electrifying finale at the Feroz Shah Kotla Cricket Stadium. In a stunning upset, India edged out Bangladesh in the final, securing a thrilling 8-wicket victory. The crowd went wild as Virat Kohli's star player, Ishan Kishan, sealed the deal with a 90-run knockout blow. The Indian team, led by captain, Rishabh Pant, showed remarkable resilience, clawing their way back from a 4-1 deficit.
 
-As the Indians wrapped up the match, their victory marked a stunning turnaround in their campaign. With this win, India sealed their progress in the tournament and set their sights on the semi-finals. The victory will be a thrilling conclusion to the tournament, with the Indian U-19 team gearing up to face their next challenge.
+In a chaotic final innings, India batted with incredible energy, chasing down the target with ease. Bangladesh's young star, Miraz Hossain, was bowled for a duck, but his unplayable shots had the BDI bowlers in a tizzy. India's triumph has sent shockwaves through the cricketing world, as they take home their second U-19 World Cup title. This thrilling tournament has left fans in awe, and we can't wait to see what the future holds for India's young cricketing heroes!
