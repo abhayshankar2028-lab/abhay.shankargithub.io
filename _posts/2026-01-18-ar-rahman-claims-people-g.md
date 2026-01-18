@@ -5,6 +5,8 @@ title: "AR Rahman claims people gaslighted him into believing he wasn’t doing 
 
 ![AR Rahman claims people gaslighted him into believing he wasn’t doing good work anymore: ‘Two Oscars can be a burden’](https://images.indianexpress.com/2026/01/rahman-1.jpg)
 
-Bollywood fans, it's time to shine a light on the fascinating yet often tumultuous side of the music industry. In a recent interview, renowned composer AR Rahman has shared his harrowing story of being gaslighted by industry insiders. According to Rahman, he was repeatedly told he wasn't producing "good enough" work, despite his unwavering dedication and genius. The gaslighting, he claims, took a toll on his mental health, making him question his abilities. 
+**Two Oscars Can Be a Burden**
 
-Rahman's cautionary tale also touches on the 'two Oscars can be a burden' mantra, a phrase that has been echoing through the music world for years. The statement has sparked a heated debate, with some defending the idea that success breeds self-doubt, while others argue that creative expression should be celebrated without fear of criticism. As we reflect on Rahman's story, it's clear that the music industry is full of complexities, and it's time to acknowledge the mental health implications of being a creative force.
+At an exclusive roundtable discussion at the recent Filmfare Awards, renowned composer AR Rahman candidly opened up about the emotional turmoil he faced after receiving two consecutive Oscars for his film 'Alaaga Paravaz'. During the conversation, Rahman expressed how he was gaslighted by some people into thinking that his work was no longer doing well. He shared how the pressure of receiving two Oscars was immense, and how it impacted his mental health.
+
+Rahman stated, 'Two Oscars can be a burden. When you have to cope with the weight of others' expectations, it can take a toll on your mental health.' He emphasized that it's essential to remember that success is not solely measured by the number of awards one receives. As he highlighted, 'The true measure of success lies in the love and appreciation of the people who matter most in your life.'
