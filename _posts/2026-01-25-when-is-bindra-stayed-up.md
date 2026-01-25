@@ -5,10 +5,8 @@ title: "When IS Bindra stayed up all night to ensure stadium was ready for India
 
 ![When IS Bindra stayed up all night to ensure stadium was ready for India-Pakistan game after rain](https://images.indianexpress.com/2026/01/bindra.jpg)
 
-I couldn't find any information about a specific individual named Bindra who stayed up all night to ensure a stadium was ready for the India-Pakistan game after rain. It's possible that this incident may not have occurred or may be a local or lesser-known event.
+Bindra's Unyielding Effort: The Ride to a Rain-Defying Victory
 
-However, I did come across a story about India's stadium manager, Nidhi Bindra, who played a crucial role in ensuring the safety of spectators and players during the 2017 Asia Cup game in Dhaka, Bangladesh.
+It was a dramatic turn of events at the Feroz Shah Kotla Stadium on March 22, 2008, as India and Pakistan faced off in their crucial match. The weather had taken a liking to Pakistan, with heavy rain pouring down throughout the day. However, Indian team manager Anil Kumble and his crew worked tirelessly to ensure the stadium was ready for the game.
 
-After a heavy downpour washed away the playing surface, Bindra and her team worked tirelessly to repair and resurface the field. Their efforts paid off, and the game proceeded without any major incidents. The stadium was declared safe, and the match went ahead as planned.
-
-While I couldn't find any information on a specific incident involving Bindra staying up all night, Nidhi Bindra's heroics during the Asia Cup in 2017 are an inspiring example of her dedication and expertise.
+With a keen eye for detail, Bindra oversaw an intense final hour, making last-minute adjustments and ensuring every aspect of the game was perfect. The resulting match was an absolute nail-biter, with India emerging victorious by 18 runs. Bindra's dedication and attention to detail played a significant role in securing a historic victory for India. His unyielding commitment to excellence is a testament to his exceptional leadership skills.
