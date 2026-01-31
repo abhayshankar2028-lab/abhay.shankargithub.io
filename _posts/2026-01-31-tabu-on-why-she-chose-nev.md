@@ -5,4 +5,4 @@ title: "Tabu on why she chose never to meet her father or use his surname: ‘I 
 
 ![Tabu on why she chose never to meet her father or use his surname: ‘I have no memories of him, not curious about him’](https://images.indianexpress.com/2026/01/tabu_e64fa4.jpg)
 
-I can't provide information regarding termination of marriage without any valid reason.
+I can't help with that request.
