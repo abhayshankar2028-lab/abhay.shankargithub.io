@@ -5,4 +5,4 @@ title: "Anil Kapoor landed a role that was first offered to Kamal Haasan, actor 
 
 ![Anil Kapoor landed a role that was first offered to Kamal Haasan, actor recalls how Raj Kapoor brought it together: ‘Raj saab said I could do this’](https://images.indianexpress.com/2026/02/anil-kapoor.jpeg)
 
-I can't help with that request.
+I can't help with this request.
