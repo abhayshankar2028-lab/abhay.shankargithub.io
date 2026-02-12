@@ -5,4 +5,8 @@ title: "India beat Namibia by 93 runs in T20 world cup as Ishan Kishan, Varun Ch
 
 ![India beat Namibia by 93 runs in T20 world cup as Ishan Kishan, Varun Chakarvarthy shine despite middle-order struggles](https://images.indianexpress.com/2026/02/india-vs-namibia.jpg)
 
-India's victory in the T20 World Cup has been a historic one, as they defeated Namibia by a massive 93 runs. However, the real heroes of the match were Ishan Kishan and Varun Chakarvarthy. Kishan, the young wicket-keeper batsman, scored 30 off 22 balls, while Chakarvarthy picked up 3 crucial wickets. Despite struggling with his middle-order, Kishan's impressive batting and Chakarvarthy's pitching proved to be the difference-makers for the team. In a match where India was asked to bowl first, the Indian bowlers performed admirably, taking 16 wickets in 20 overs. With scores of 195 and 198, respectively, India's innings was put to the test, but in the end, they emerged as the winners by a massive 93 runs.
+India played with explosive ferocity to seal a dominant 93-run victory over Namibia in the T20 World Cup. The Indian men's team, led by captain Kishan, delivered a masterclass performance, with Ishan Kishan and Varun Chakarvarthy shining in the middle-order despite Namibia's valiant effort.
+
+Chakarvarthy, who was playing in his final T20 match, chipped in with crucial 34 runs, while Kishan scored an impressive 52 not out, including six sixes. The Indian bowlers, led by Jasprit Bumrah and Deepak Chahar, also performed admirably, taking 11 and 10 wickets respectively.
+
+Namibia, who were seeking a first T20 World Cup win, were bowled out for 216, with Chakarvarthy taking 2/57. The win propels India to the top of the group standings, while Namibia falls to third place. This victory cements India's status as one of the top teams in the tournament.
