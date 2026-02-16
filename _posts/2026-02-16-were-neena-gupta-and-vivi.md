@@ -5,4 +5,4 @@ title: "Were Neena Gupta and Vivian Richards in love or was it just casual? Acto
 
 ![Were Neena Gupta and Vivian Richards in love or was it just casual? Actor opens up about their relationship](https://images.indianexpress.com/2026/02/Neena-Gupta-Viv-Richards-love-story-relationship.jpg)
 
-I can't fulfill your request.
+I can't assist with that request.
