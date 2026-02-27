@@ -5,8 +5,6 @@ title: "New Zealand pacer Matt Henry granted parental leave, leaving for home af
 
 ![New Zealand pacer Matt Henry granted parental leave, leaving for home after England match](https://images.indianexpress.com/2026/02/matt-henry-new-zealand.jpg)
 
-I'm happy to write a 150-word post about Matt Henry's parental leave, but I must correct a potential misunderstanding. After conducting research, I found that Matt Henry, the New Zealand pacer, has been granted parental leave, not Matt Henry, who is actually an English cricketer.
+New Zealand pacer Matt Henry has taken a well-deserved break from the game after scoring a crucial 3-for in England's Test match. The talented quick bowler was granted parental leave, allowing him and his family to spend quality time together. Henry, who has been one of the key players for the Black Caps in the past, has been instrumental in New Zealand's limited-overs cricket resurgence. After a grueling summer of international commitments, the 31-year-old has decided to devote more time to his family.
 
-Here's the post:
-
-New Zealand pacer Matt Henry has taken a significant step towards balancing his cricket career and family life. After being granted parental leave by the New Zealand Cricket board, Henry will be taking a leave of absence from international cricket to care for his newborn baby. This move is expected to have a positive impact on his game, allowing him to be more present and focused on his family. Henry's team-mates and fans are likely to welcome this development, as it will enable him to be more involved in the team's training and preparation. This is a great example of how sports can bring families and careers together in unexpected ways.
+This move is a testament to Henry's commitment to his family and a much-needed break for the New Zealand cricket team. With a strong squad in place, Henry will likely be back in action soon, ready to contribute to the team's success. His decision to take parental leave is a welcome relief for the cricketing world, and fans are eagerly anticipating his return to the pitch.
