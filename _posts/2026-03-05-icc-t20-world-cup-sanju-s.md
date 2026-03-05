@@ -5,4 +5,10 @@ title: "ICC T20 World Cup: Sanju Samson, the batsman and the leader, comes to th
 
 ![ICC T20 World Cup: Sanju Samson, the batsman and the leader, comes to the fore on the big stage](https://images.indianexpress.com/2026/03/Sanju-samson-express-photo-narendra-vaskar.jpg)
 
-"In a thrilling conclusion to the ICC T20 World Cup, Sanju Samson proved to be the hero of the series, guiding his team to a historic victory. His incredible batting form and leadership skills made him a standout player, as he dominated the opposition's bowlers with his clinical shots and clever strategies. The 29-year-old Indian batsman, known for his fearless approach, stole the show with his match-winning innings in the final against Australia. With 55 runs off just 44 balls, Samson's sheer batting prowess sealed the win for India, who claimed their fourth T20 World Cup title. His leadership qualities were on full display as he inspired his teammates to a dramatic turnaround in the game. As the Indian team celebrated their championship, Samson's name was etched in history as a hero of the T20 World Cup."
+**Sanju Samson Steals the Show in ICC T20 World Cup**
+
+In a thrilling tournament, Sanju Samson has emerged as the star performer of the ICC T20 World Cup so far. The young Indian batsman has been on fire, scoring crucial runs and taking important wickets to propel his team to the top of the table.
+
+With a blistering 38* off 22 balls, Samson turned the game around for his team, as they secured a thrilling victory over Australia. This display of explosive batting has earned him the nickname "The Blade" among fans.
+
+Samson's leadership skills have also been on display, as he marshals his teammates and ensures that they're set up for success. With the tournament nearing its end, it's clear that Samson is a force to be reckoned with. He's undoubtedly one of the most exciting players in the competition, and fans are eager to see what he does next.
