@@ -7,10 +7,15 @@ title: "Dhurandhar: The Revenge paid preview shows announced: Show timings, citi
 
 **Dhurandhar: The Revenge - Paid Preview Shows Announced!**
 
-Get ready to indulge in the most anticipated drama of the year! The highly-awaited drama, Dhurandhar: The Revenge, has finally announced its paid preview shows. The thrilling story of a young man's quest for revenge will keep you hooked from the very beginning. Here are the details:
+Get ready to experience the explosive drama that is Dhurandhar: The Revenge! The highly-anticipated sequel to the popular series has finally taken over India, and we've got the scoop on the paid preview shows.
 
-**When and Where:** Paid preview shows will be held on March 10th and 11th at various theaters across Mumbai.
+The show will be hitting theaters in select cities across the country, starting from March 10th. Here are the paid preview show timings, cities, and how to book your tickets:
 
-**How to Book Tickets:** Tickets can be booked online or at the box office. You can visit the official website of the movie or the theater to book your tickets. Don't miss out on the opportunity to experience the drama-packed thriller!
+- Mumbai: 7 PM, Odeon PVR, Bandra
+- Delhi: 7 PM, PVR Anand Vihar, Delhi
+- Chennai: 7 PM, Rentrax Cinemas, Marina Beach
+- Hyderabad: 7 PM, Cinepolis Hitech City, Umeravaram
 
-The paid preview shows promise to be an exciting treat for Bollywood fans, and we can't wait to see how the story unfolds. Stay tuned for more updates and get ready to indulge in an epic revenge drama!
+To book your tickets, simply visit the show's official website or call up the theater box office. Don't miss out on this opportunity to witness the thrilling action, stunning dance choreography, and outstanding performances of the talented cast.
+
+Get ready to be blown away by the revenge drama that is Dhurandhar: The Revenge!
