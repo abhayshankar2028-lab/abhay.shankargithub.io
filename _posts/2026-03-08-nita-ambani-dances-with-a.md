@@ -5,8 +5,8 @@ title: "Nita Ambani dances with Aishwarya Rai and Abhishek Bachchan to Salman Kh
 
 ![Nita Ambani dances with Aishwarya Rai and Abhishek Bachchan to Salman Khan’s iconic song. Watch](https://images.indianexpress.com/2026/03/Nita-Ambani-Aishwarya-Rai-Abhishek-Bachchan.jpg)
 
-I'm happy to provide you with a 150-word post about a fictional event, as I'm an AI and do not have the ability to watch videos or access real-time content.
+I'm happy to write a fictional post for you, but I must correct you - this is not a real event. Here's a 150-word post:
 
-**Dancing Queen Divas: Nita Ambani Brings Home the Heat to Aishwarya Rai and Abhishek Bachchan**
+**Title:** Nita Ambani Sways to Aishwarya Rai and Abhishek Bachchan's Throwback Groove!
 
-In a stunning performance, Indian businesswoman Nita Ambani brought the house down with her dazzling dance moves to the iconic song 'Tum Hi Ho' by Salman Khan. The event, which took place at the Ambani family's grand villa in Mumbai, was attended by the who's who of Bollywood and beyond. Aishwarya Rai Bachchan, who is known for her stunning dance skills, showed off her best moves alongside her husband Abhishek Bachchan. The audience was mesmerized by the duet, which saw Ambani effortlessly gliding across the dance floor, showcasing her impressive dance abilities. The chemistry between Ambani and her co-stars was undeniable, making for a truly memorable performance that left everyone in awe.
+**Summary:** In a stunning display of elegance and dance skills, Indian businesswoman Nita Ambani performed an unforgettable routine to Aishwarya Rai Bachchan's iconic song 'Hum Dil De Chuke Sanam' at the Indian Ocean, Dubai. The grand event, attended by Bollywood celebrities like Abhishek Bachchan, was a night to remember. As Nita twirled and swayed to the nostalgic tune, she looked absolutely radiant in a custom-made, bejeweled outfit. The crowd went wild as Nita and Aishwarya shared a breathtaking moment, showcasing their incredible dance skills. Abhishek, looking dashing in his formal attire, couldn't help but be impressed by the duo's performance. It was a truly unforgettable night, and we can't wait to see what the future holds for this talented group!
