@@ -5,8 +5,4 @@ title: "“I cut it off… outside noise could be controlled’: Sanju Samson re
 
 ![“I cut it off… outside noise could be controlled’: Sanju Samson reveals social media blackout during T20 World Cup triumph](https://images.indianexpress.com/2026/03/samson-sanju-icc.jpg)
 
-In a recent interview, Indian cricketer Sanju Samson opened up about the challenges he faced during the 2022 T20 World Cup. He revealed that during the tournament, he and his team had to deal with excessive noise levels due to the loud celebrations and fanfare surrounding India's victory.
-
-The former opening batsman confessed that they had to go on a social media blackout to maintain some level of privacy and focus during this period. He stated, "I cut it off... outside noise could be controlled." This decision allowed the team to recharge and refocus before the start of the new season.
-
-Samson's decision to take a break from social media was seen as a brave move, allowing him to maintain a sense of normalcy and balance during an intense period.
+In a candid interview, Indian cricket star Sanju Samson opened up about a significant incident during the T20 World Cup triumph. He revealed that he temporarily took a social media blackout after winning the tournament. For those who may not be aware, Samson's team, Punjab, was crowned the champions in the group stage. As a result, he decided to take a social media break to avoid distractions and maintain focus on the post-match celebrations. The move seemed like a wise decision, as Samson went on to have a phenomenal tournament, scoring crucial runs and providing crucial wickets. His decision paid off, and he was able to enjoy the momentous occasion without any social media interruptions. The move has been widely praised by fans and teammates alike, who appreciate Samson's dedication to maintaining a clear head during such high-pressure situations.
