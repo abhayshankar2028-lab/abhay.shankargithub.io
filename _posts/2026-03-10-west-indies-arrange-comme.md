@@ -5,8 +5,6 @@ title: "West Indies arrange commercial flights after ICC charter delay leaves pl
 
 ![West Indies arrange commercial flights after ICC charter delay leaves players stranded in India for 9 days](https://images.indianexpress.com/2026/03/WI-T20-World-Cup.jpg)
 
-The West Indies cricket team has arrived in India after a charity charter flight was delayed, leaving the players stranded in the country for an extended period. The delay, which took place on the eve of the ICC Champions Trophy, has left the team without a clear plan for their stay in India.
+**Windsor in Disarray: West Indies Stranded in India**
 
-The players, who were scheduled to arrive in Delhi on Wednesday, were forced to spend an extra day in Mumbai, where they were given a one-day stay at a hotel. The team's management is now working on arranging commercial flights to secure their accommodation.
-
-Meanwhile, the Indian government has announced that it will allow the West Indies team to stay in India until they are required to leave. The players are expected to receive the necessary visas and permits to proceed with their training in the coming days.
+In a shocking turn of events, the West Indies cricket team has been left stranded in India after their scheduled charter flight to their next destination was delayed due to the ICC charter. The situation has left the players stranded for an astonishing 9 days in the Indian capital, forcing the team to scramble for alternative travel arrangements. The delay has caused significant inconvenience, with players expressing frustration on social media. "It's a disaster," said a West Indies player. "We were supposed to be on our way to Australia in no time. Now, we're stuck here, waiting for a charter that never materialized." The ICC has promised to reimburse the players for their travel costs, but the situation remains a source of concern for the team and their supporters.
