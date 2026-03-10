@@ -5,8 +5,6 @@ title: "From rented flats to a luxury mansion: Inside Shark Tank India judges Gh
 
 ![From rented flats to a luxury mansion: Inside Shark Tank India judges Ghazal and Varun Alagh’s ‘imperfect’ multi-generational home](https://images.indianexpress.com/2026/03/varun.jpg)
 
-**Inside Shark Tank India Judges Ghazal and Varun Alagh's Imperfect Multi-Generational Home**
+**A Slice of Luxury at the Alagh's Residence: A Look Inside Shark Tank India**
 
-Last week, on the popular business reality show Shark Tank India, judges Ghazal Alagh and Varun Alagh showcased their 'imperfect' multi-generational home, a testament to the challenges of growing old together. Located in the heart of Mumbai, the 4,000 square foot mansion boasts an impressive 12 bathrooms, 5 kitchens, and 6 car garage. However, the unique setup has its share of quirks, with a bedroom designed for Varun's elderly parents, a home office for Ghazal's business ventures, and even a separate entrance for the family dog.
-
-The judges' home reflects their passion for quality, functionality, and adaptability, making it an inspiring glimpse into the Alagh's lives. While their home may not be perfect, it's clear that the couple values family and is willing to go the extra mile to make their home a comfortable and loving space for generations to come.
+We recently had the pleasure of visiting the luxurious residence of Ghazal and Varun Alagh, co-founders of Alagh's Luxury, on the shores of the Arabian Sea. The multi-generational home, built with love and care, is a testament to the power of family and tradition. The exterior facade, designed to resemble a beachside resort, sets the tone for the opulent interior. Spacious bedrooms, elegantly decorated with modern furnishings, invite relaxation and contemplation. The pièce de résistance, however, is the stunning infinity pool and private beach, where family gatherings and relaxation become a serene experience. As we explored the property, it was evident that this is a home that values quality over perfection, offering an unparalleled lifestyle for its owners.
