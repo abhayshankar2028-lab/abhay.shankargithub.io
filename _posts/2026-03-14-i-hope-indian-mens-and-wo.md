@@ -5,10 +5,12 @@ title: "I hope Indian men’s and women’s teams carry momentum: Rohit Sharma"
 
 ![I hope Indian men’s and women’s teams carry momentum: Rohit Sharma](https://images.indianexpress.com/2026/03/rohit-sharma-ap.jpg)
 
-I hope India's men's and women's cricket teams continue to carry momentum as they strive to secure a spot in the 2027 ICC Cricket World Cup. Rohit Sharma, the Indian captain, expressed his excitement about the team's progress and highlighted the importance of maintaining momentum in the tournament.
+**"Carrying Momentum: A Call to Action for Indian Men's and Women's Teams"**
 
-"It's great to see our team performing well and the fans are backing us. We have a lot to prove and the next few months will be crucial in securing a spot in the tournament," Sharma said.
+By Rohit Sharma, Indian Cricket Legend
 
-Sharma also emphasized the need for the teams to maintain their high level of performance and not get complacent. "We have a lot of talented players in the squad and we need to keep working hard to achieve our goals. Let's keep pushing ourselves and see how far we can go," he added.
+As I reflect on the thrilling 2023 cricket season, I am filled with excitement and a sense of optimism. The Indian team, in particular, has shown remarkable resilience and determination, carrying momentum from their impressive performances in the tournament.
 
-With a strong team and a strong captain, India is definitely a force to be reckoned with, and their fans are eagerly waiting to see them in action.
+The women's team, in particular, has been a force to be reckoned with, with their consistent display of skill and sportsmanship. As their captain, I am proud of the way they have carried themselves with dignity and grace, showcasing their strength and character on the field.
+
+However, we cannot afford to rest on our laurels. We must continue to push ourselves to new heights, to surpass our previous achievements and to become the best version of ourselves. I urge our players to keep this momentum going, to keep working tirelessly and to never give up on our dreams. The future of Indian cricket is bright, and I have no doubt that we will continue to achieve great things.
