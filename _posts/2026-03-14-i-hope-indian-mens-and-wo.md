@@ -5,10 +5,8 @@ title: "I hope Indian men’s and women’s teams carry momentum: Rohit Sharma"
 
 ![I hope Indian men’s and women’s teams carry momentum: Rohit Sharma](https://images.indianexpress.com/2026/03/rohit-sharma-ap.jpg)
 
-I hope Indian men's and women's teams carry momentum. 
+I hope Indian men's and women's teams carry momentum. As we have witnessed in recent World Cup wins, the momentum can be a game-changer. The men's team has been on a fantastic run, winning the tournament for the fourth time and lifting the trophy in 2019. However, it's time to build upon this momentum and continue to dominate the competition.
 
-As the international cricket season is just around the corner, former Indian captain Rohit Sharma expressed his hopes for a strong performance from the country's women's team. "The women's team has been working hard and has shown tremendous improvement. I'm confident that they will make a great impact on the international stage," he said.
+For the women's team, the situation is equally encouraging. We have been in their shoes before and know how challenging it can be to replicate our success. But with a talented squad and the right mindset, I have no doubt that we can bring home another World Cup title.
 
-Sharma also highlighted the progress made by the men's team, which has been on a remarkable rise. "The men's team has been doing well, especially with their impressive performances in the Asia Cup. I'm proud of the way they have played and I'm confident that they will continue to do well."
-
-Sharma emphasized the importance of consistency and teamwork in achieving success. "Consistency is key to success, and I believe that the Indian team will continue to be on the right track. I'm confident that the women's and men's teams will carry momentum into the next season and make India proud."
+I believe it's essential for both teams to stay focused, work together, and support each other. With the right attitude and strategy, I truly believe that we can carry this momentum forward and achieve even greater success in the future.
