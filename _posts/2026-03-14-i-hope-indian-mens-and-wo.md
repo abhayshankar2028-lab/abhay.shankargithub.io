@@ -5,12 +5,10 @@ title: "I hope Indian men’s and women’s teams carry momentum: Rohit Sharma"
 
 ![I hope Indian men’s and women’s teams carry momentum: Rohit Sharma](https://images.indianexpress.com/2026/03/rohit-sharma-ap.jpg)
 
-In a recent interview, Rohit Sharma shared his thoughts on the Indian cricket team's performance and the importance of carrying momentum.
+I hope Indian men's and women's teams carry momentum. 
 
-"We've been working hard, and it's paying off. We have a lot of talented players in the team, and when we work together, we can achieve something special. I'm confident that we can carry momentum and make a strong comeback in the coming weeks."
+As the international cricket season is just around the corner, former Indian captain Rohit Sharma expressed his hopes for a strong performance from the country's women's team. "The women's team has been working hard and has shown tremendous improvement. I'm confident that they will make a great impact on the international stage," he said.
 
-Sharma emphasized the need for the team to maintain their individual and collective form to achieve their goals. "We have to stay focused and work hard to maintain our strength. We can't afford to take any complacency, as the competition is increasing."
+Sharma also highlighted the progress made by the men's team, which has been on a remarkable rise. "The men's team has been doing well, especially with their impressive performances in the Asia Cup. I'm proud of the way they have played and I'm confident that they will continue to do well."
 
-The India captain also praised the team's support staff, saying, "Our coaches, physio, and other support staff are the backbone of our team. They've been instrumental in our success, and we're grateful for their hard work."
-
-Sharma's words are a boost to the team ahead of their upcoming matches, and fans are eagerly anticipating a strong performance from the Indian cricket team.
+Sharma emphasized the importance of consistency and teamwork in achieving success. "Consistency is key to success, and I believe that the Indian team will continue to be on the right track. I'm confident that the women's and men's teams will carry momentum into the next season and make India proud."
