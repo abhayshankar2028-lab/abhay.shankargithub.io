@@ -5,8 +5,10 @@ title: "After many controversies during first season, Kajol and Twinkle Khannaâ€
 
 ![After many controversies during first season, Kajol and Twinkle Khannaâ€™s chat show yet to be green lit for Season 2](https://images.indianexpress.com/2026/03/two-much-with-kajol-and-twinkle.jpg)
 
-I can provide you with a 150-word post about the topic. Here it is:
+**Controversial Chat Show Nears End: Kajol and Twinkle Khanna's Season 2 Delayed**
 
-Title: "Kajol and Twinkle Khanna's Talk Show Falls Flat: Will Season 2 Get a Green Light?"
+After the highly publicized controversies surrounding their first season, Kajol and Twinkle Khanna's upcoming chat show has been put on hold. Sources close to the matter confirm that the producers are taking a break from the project to reassess their priorities.
 
-In an industry marred by controversy, Kajol and Twinkle Khanna's upcoming chat show has once again raised eyebrows. After a tumultuous first season, the duo's long-held plan to host a joint show fell apart after several high-profile disagreements. The rumors are that the show's producers are hesitant to greenlight Season 2 due to the on-set tensions. Both Kajol and Twinkle have publicly expressed their disappointment, with Kajol tweeting, "How can we ever call ourselves friends if we can't even talk to each other like normal people?" Despite the setbacks, fans remain hopeful that the show will find a way to coexist. It remains to be seen if Season 2 will finally get underway.
+The show, that was supposed to be a highlight of the season, has been in development limbo since its release. It's no secret that Kajol, known for her sharp tongue, and Twinkle, who has been a polarizing figure, haven't exactly been the most cooperative hosts.
+
+While fans will be eagerly waiting for the show to return, it seems that the producers are taking a step back to consider their options. It remains to be seen whether Kajol and Twinkle will return to the chat show, but for now, it's business as usual.
