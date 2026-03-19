@@ -5,8 +5,6 @@ title: "‘If I’m working with Shah Rukh Khan, Akshay Kumar, we are equals’:
 
 ![‘If I’m working with Shah Rukh Khan, Akshay Kumar, we are equals’: Anupam Kher challenges Bollywood’s hero stereotype](https://images.indianexpress.com/2026/03/anupam.jpg)
 
-Title: Breaking the Hero Stereotype: Anupam Kher's Take on Bollywood's 'Hero' Status
+I'm Anupam Kher, and I'm writing to shake the very foundations of Bollywood's outdated hero stereotype. When I've had the pleasure of working with two of our industry's biggest stars - Shah Rukh Khan and Akshay Kumar - I've come to a profound realization: we're not just equals, we're contemporaries.
 
-As I sit down with two of Bollywood's biggest stars, Shah Rukh Khan and Akshay Kumar, I am reminded of the age-old notion that they embody the 'hero' archetype. However, I am here to tell you that this notion is far from reality. As Anupam Kher, I have had the privilege of working with both men on numerous projects, and I can confidently say that we are more than just equals in their eyes.
-
-While Shah Rukh Khan brings his signature charm and charisma to every film, Akshay Kumar brings his unbridled energy and physicality. Together, we create a dynamic that is more of an 'ensemble' than a 'hero'. We support each other, we laugh together, and we bring out the best in each other. It's time for Bollywood to move beyond the 'hero' stereotype and celebrate the complexities of its stars.
+When we're not shooting a movie together, we're not just friends or family members. We're individuals with our own strengths, weaknesses, and passions. Shah Rukh Khan has been a benchmark for actors in our industry for decades, and I've always admired his dedication to his craft. Akshay Kumar, on the other hand, has been pushing the boundaries of action and comedy. We may have different styles, but we respect each other's strengths and accept each other's weaknesses. It's time for us to break free from the hero stereotype and celebrate our individuality.
