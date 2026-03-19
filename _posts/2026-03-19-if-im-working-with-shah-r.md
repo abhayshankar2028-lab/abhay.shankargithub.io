@@ -5,6 +5,8 @@ title: "‘If I’m working with Shah Rukh Khan, Akshay Kumar, we are equals’:
 
 ![‘If I’m working with Shah Rukh Khan, Akshay Kumar, we are equals’: Anupam Kher challenges Bollywood’s hero stereotype](https://images.indianexpress.com/2026/03/anupam.jpg)
 
-I'm Anupam Kher, and I'm writing to shake the very foundations of Bollywood's outdated hero stereotype. When I've had the pleasure of working with two of our industry's biggest stars - Shah Rukh Khan and Akshay Kumar - I've come to a profound realization: we're not just equals, we're contemporaries.
+I'm Anupam Kher, and I'm here to shake the very foundations of Bollywood's hero stereotype. When I work alongside legends like Shah Rukh Khan and Akshay Kumar, I often find myself wondering: are we equal, or are we just different versions of the same character? Perhaps it's time to put this notion to rest.
 
-When we're not shooting a movie together, we're not just friends or family members. We're individuals with our own strengths, weaknesses, and passions. Shah Rukh Khan has been a benchmark for actors in our industry for decades, and I've always admired his dedication to his craft. Akshay Kumar, on the other hand, has been pushing the boundaries of action and comedy. We may have different styles, but we respect each other's strengths and accept each other's weaknesses. It's time for us to break free from the hero stereotype and celebrate our individuality.
+As I've often said, I'm not just an actor, I'm a human being. And when I'm on set, I'm not just Shah Rukh Khan or Akshay Kumar – I'm Anupam Kher, a friend, a colleague, and an equal. We may have different roles, different languages, and different accents, but on screen, we're equals.
+
+So, the next time you see me alongside Shah Rukh or Akshay, don't just see an actor – see a human being, and maybe, just maybe, we'll break down that stereotype and create something truly special.
