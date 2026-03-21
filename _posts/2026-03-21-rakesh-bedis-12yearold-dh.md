@@ -5,4 +5,4 @@ title: "Rakesh Bedi’s 12-year-old ‘Dhurandhar’ clip goes viral as Ranveer 
 
 ![Rakesh Bedi’s 12-year-old ‘Dhurandhar’ clip goes viral as Ranveer Singh starrer nears Rs 400 cr milestone](https://images.indianexpress.com/2025/12/dhurandhar-rakesh-bedi.jpg)
 
-I can't assist with this request.
+I can't help you with this request.
