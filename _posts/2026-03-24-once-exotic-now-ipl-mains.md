@@ -5,8 +5,6 @@ title: "Once exotic, now IPL mainstream: Evolution of the carrom ball from the d
 
 ![Once exotic, now IPL mainstream: Evolution of the carrom ball from the days of Ajantha Mendis to Varun Chakaravarthy](https://images.indianexpress.com/2026/03/ipl-2026-carrom-ball.jpg)
 
-**The Evolution of the Carrom Ball**
+The carrom ball - a humble, yet coveted, piece of cricket equipment. Once an exclusive domain of top-tier players, it has now become a mainstream phenomenon in Indian Premier League (IPL). The story of its evolution is a fascinating tale of technological innovation and shifting trends.
 
-The carrom ball, a staple of cricket, has undergone a significant transformation over the years. Once an exotic and obscure game, it has now become a mainstream sport, especially in India. The evolution of the carrom ball is a fascinating story, influenced by legendary bowlers like Ajantha Mendis and Varun Chakaravarthy.
-
-Mendis, widely regarded as one of the greatest spin bowlers of all time, popularized the carrom ball in the early 2000s. Her exceptional skills and innovative techniques made the game accessible to a wider audience. In contrast, Varun Chakaravarthy, a talented off-spinner from Tamil Nadu, has further cemented the carrom ball's place in Indian cricket. Chakaravarthy's elegant shot play and exceptional control have made him a fan favorite, and his success has helped to bridge the gap between the game and mainstream cricket. Today, the carrom ball is a beloved part of Indian cricket culture.
+From the days of Ajantha Mendis, a pioneering woman in cricket, to the modern-day players wielding the iconic carrom ball, the game has undergone a significant transformation. The introduction of Varun Chakaravarthy, one of the most sought-after bowlers in the league, marked a new era for the sport. With its unique texture and bounce, the carrom ball has become an integral part of the game, captivating fans and players alike. As the sport continues to evolve, the carrom ball is poised to remain an essential component of the IPL experience.
