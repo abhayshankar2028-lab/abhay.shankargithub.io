@@ -5,6 +5,8 @@ title: "Did Badshah tie the knot with Isha Rikhi? Isha’s mother drops wedding 
 
 ![Did Badshah tie the knot with Isha Rikhi? Isha’s mother drops wedding photos, fuels speculation](https://images.indianexpress.com/2026/03/badshahmarriage.jpg)
 
-**EXCLUSIVE BOLLYWOOD NEWS**
+**Bollywood Buzz: Isha Rikhi and Badshah Tie the Knot?**
 
-Shah Rukh Khan's Badshah has finally tied the knot with his beautiful wife Isha Rikhi, but the couple's special day has been marred by speculation regarding the bride's mother. In a shocking move, Isha's mother, Monica Bedi, has released a collection of wedding photos, which have sparked intense buzz among fans and paparazzi alike. The photos show Isha looking stunning in a white lehenga and Badshah beaming with happiness in his traditional kurta. However, sources close to the couple reveal that Isha's mother was not present at the ceremony, fueling speculation that she might not be accepting the marriage. The news has left fans eagerly awaiting the couple's official response, which is expected to be announced soon.
+Rumors are swirling in the entertainment industry about the upcoming nuptials of Bollywood heartthrobs Isha Rikhi and Badshah. The speculation is intensifying, with sources close to the couple claiming that the two have finally exchanged their vows. But what about Isha's mother, Sunita Rikhi? She has dropped a bombshell by sharing wedding photos of her daughter with Badshah, sending fans into a frenzy.
+
+The pictures are certainly eye-catching, with Isha looking stunning in a traditional Sari and Badshah sporting his signature stylish attire. While Isha's mother has refused to confirm or deny the reports, fans are speculating about the possibility of a high-profile wedding. One thing is certain, however: the lovebirds are definitely tying the knot soon. Stay tuned for more updates on this exciting development!
