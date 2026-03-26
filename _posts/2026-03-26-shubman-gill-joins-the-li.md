@@ -5,6 +5,8 @@ title: "Shubman Gill joins the list of critics for Impact Player rule in IPL: �
 
 ![Shubman Gill joins the list of critics for Impact Player rule in IPL: ‘Takes the skill out of the game’](https://images.indianexpress.com/2026/03/Gill-Nehra.jpg)
 
-IPL fans are abuzz with the latest development as Shubman Gill has been named in the list of critics for the Impact Player rule in the Indian Premier League. This move aims to reduce the physical demands on players and give them a break from intense cricket. Shubman Gill has been one of the players who has been vocal about the need for a change. He believes that the Impact Player rule will take the skill out of the game, making it easier for players to recover and perform at their best.
+Shubman Gill has joined the exclusive club of critics for the Impact Player rule in the Indian Premier League (IPL). His impressive performances have made a significant impact on the game, and now, the impact on the game has been recognized by the governing body.
 
-The impact player rule restricts players to playing only three overs in an innings and allows for a full day's cricket, including batting and bowling. This change has been welcomed by many cricket enthusiasts and experts alike. Gill's views highlight the need for a sustainable approach to the game, where players can take a break without compromising their performance.
+The Impact Player rule is a new initiative by the Board of Control for Cricket in India (BCCI) that aims to reduce the number of fielding variations and promote consistency in the game. By enforcing this rule, the aim is to "takes the skill out of the game" as it eliminates the element of surprise and unpredictability that comes with various fielding positions.
+
+Gill, who has been a key player for Royal Challengers Bangalore, believes that this rule will benefit the game by promoting a more relaxed and forgiving approach to fielding.
