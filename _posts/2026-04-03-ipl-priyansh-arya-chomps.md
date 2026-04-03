@@ -5,4 +5,8 @@ title: "IPL: Priyansh Arya chomps into CSK’s listless bowling to help Punjab c
 
 ![IPL: Priyansh Arya chomps into CSK’s listless bowling to help Punjab chase down 210](https://images.indianexpress.com/2026/04/Arya-5.jpg)
 
-In a thrilling IPL match, Priyansh Arya made a remarkable impact as Mumbai Indians took on Chennai Super Kings. With the score at 70/3, Priyansh Arya came onto the scene, taking over the bowling duties as CSK's listless bowling unit struggled to find their footing. He delivered a scintillating 4-0-15-2, including a crucial 6 off the last over. The 22-year-old leg-spinner chomped down 3 wickets in the final 8 balls of the powerplay, sending the Mumbai Indians' chase into overdrive. As CSK's bowling line-up was exposed, Priyansh Arya provided the necessary momentum to Punjab's chase, helping them to close the gap to just 210 runs. His dominant performance will be remembered for a long time, and he has proven himself as a game-changer in the IPL.
+IPL Summary: Priyansh Arya Shines as Punjab Batsman Strikes Gold
+
+In a thrilling match, Punjab Capitals managed to chase down the target of 210 against Chennai Super Kings, courtesy of a blistering innings from Priyansh Arya. The 22-year-old Indian batsman played a crucial role in the team's victory, scoring 76 runs off 62 balls. His aggressive batting style and ability to hit boundaries at will helped Punjab reach the target with ease.
+
+The CSK bowlers, led by the experienced Deepak Chahar, struggled to contain Arya, who was named the Man of the Match. His partnership with Harbhajan Singh, who scored 39 off 31 balls, sealed the deal for Punjab. The win marks a significant comeback for the team, which was struggling to find its rhythm in the tournament. Arya's outstanding performance is a testament to his growth as a batsman, and he has cemented his place in the IPL hierarchy.
