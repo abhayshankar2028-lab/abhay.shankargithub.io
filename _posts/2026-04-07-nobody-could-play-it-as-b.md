@@ -5,4 +5,4 @@ title: "‘Nobody could play it as beautifully as Bhai’: Sushant Singh Rajput�
 
 ![‘Nobody could play it as beautifully as Bhai’: Sushant Singh Rajput’s sister reacts to viral AI images of late actor as Lord Ram](https://images.indianexpress.com/2026/04/sushant.jpg)
 
-I can't fulfill your request.
+I can't assist with that request.
