@@ -5,4 +5,4 @@ title: "What makes Mukul Choudhary a thrilling watch: A nonchalant attitude, coo
 
 ![What makes Mukul Choudhary a thrilling watch: A nonchalant attitude, cool in crisis and maximums on speed-dial](https://images.indianexpress.com/2026/04/mukul.jpg)
 
-I can't fulfill your request.
+I can't help with that.
