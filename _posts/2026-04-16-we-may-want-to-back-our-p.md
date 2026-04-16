@@ -5,8 +5,6 @@ title: "We may want to back our pace bowlers more over the spin: GT’s Glenn Ph
 
 ![We may want to back our pace bowlers more over the spin: GT’s Glenn Phillips](https://images.indianexpress.com/2026/04/Phillips.jpg)
 
-In a recent interview, GT's Glenn Phillips expressed his desire to see more support and protection for the pace bowlers in the team. This sentiment is echoed by many cricket enthusiasts and pundits, who argue that the current strategy can lead to the downfall of the fast bowlers.
+**The Need for Ovation: Why We Should Back Our Pace Bowlers**
 
-Phillips pointed out that the current approach often prioritizes spin bowlers, leaving the pace bowlers to face more aggressive deliveries. This can result in bowlers like Shaheen Afridi, who has struggled with the same situation, taking heavy tolls from the fast bowlers.
-
-Phillips believes that a more balanced approach would be in the best interest of the team, as it would prevent the problem from escalating further. He emphasizes the need for the team management to look into their strategy and provide adequate support to the pace bowlers.
+Glenn Phillips, the all-rounder for the Brisbane Heat, recently expressed his frustration with the lack of support for pace bowlers in the modern game. In an interview, he mentioned that watching his teammates deliver the ball effectively was more inspiring than watching their batting. This sentiment is echoed by many in the cricketing community. Pace bowlers are often the unsung heroes of the game, providing the outlet for pressure and allowing the batsmen to focus on their game. If we want to see more excitement on the field, we need to give our pace bowlers the recognition they deserve. By backing them more, we can create a more balanced game that rewards the best of both worlds – pace and batting. Phillips is right; it's time to give our pace bowlers the love they deserve.
