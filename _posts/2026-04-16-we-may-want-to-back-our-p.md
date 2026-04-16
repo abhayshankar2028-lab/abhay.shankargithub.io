@@ -5,6 +5,8 @@ title: "We may want to back our pace bowlers more over the spin: GT’s Glenn Ph
 
 ![We may want to back our pace bowlers more over the spin: GT’s Glenn Phillips](https://images.indianexpress.com/2026/04/Phillips.jpg)
 
-**The Need for Ovation: Why We Should Back Our Pace Bowlers**
+**The Price of Power: Why Backing Pace Bowlers is Crucial in Spin-Focused Batting Lines**
 
-Glenn Phillips, the all-rounder for the Brisbane Heat, recently expressed his frustration with the lack of support for pace bowlers in the modern game. In an interview, he mentioned that watching his teammates deliver the ball effectively was more inspiring than watching their batting. This sentiment is echoed by many in the cricketing community. Pace bowlers are often the unsung heroes of the game, providing the outlet for pressure and allowing the batsmen to focus on their game. If we want to see more excitement on the field, we need to give our pace bowlers the recognition they deserve. By backing them more, we can create a more balanced game that rewards the best of both worlds – pace and batting. Phillips is right; it's time to give our pace bowlers the love they deserve.
+In the current era of cricket, spin bowling is more crucial than ever. The likes of Ravichandran Ashwin, Jasprit Bumrah, and the Indian spin duo of Kuldeep and Yuzvendra Chahal are among the most feared spinners in the game. However, their dominance is made possible by the support they receive from the batsmen.
+
+Glenn Phillips, a talented New Zealand all-rounder, is a prime example of this. His ability to score quickly and score big has been a significant part of New Zealand's batting success. In an era where pace bowling is becoming increasingly important, it's essential to back our pace bowlers more. By giving them the freedom to attack and exploiting the opposition's weaknesses, we can create a more balanced and formidable team.
