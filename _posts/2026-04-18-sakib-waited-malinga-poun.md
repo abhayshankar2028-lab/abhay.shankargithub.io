@@ -5,8 +5,4 @@ title: "Sakib waited, Malinga pounced — SRH beat CSK by 10 runs in IPL 2026 th
 
 ![Sakib waited, Malinga pounced — SRH beat CSK by 10 runs in IPL 2026 thriller](https://images.indianexpress.com/2026/04/malinga-sakib-bcci-creimas.jpg)
 
-SRH's late surge propelled them to an impressive 10-run victory over CSK in an electrifying IPL 2026 encounter. 
-
-In a thrilling match, the Pink Panther Sakibullah Nadim's wait finally paid off as he scored an unbeaten 55 off just 29 deliveries. The triumphant couple struck a crucial 4 and 3 runs respectively to change the course of the match.
-
-Malinga Badri, however, was the game-changer for CSK, delivering a blistering 3-wicket haul to help his team stay in contention. After a valiant effort from Dhruv Sharma, CSK never seemed to gain a foothold in the game. With SRH's late surge, they managed to put up a decent score to chase down the required runs. The thrilling match ended with SRH emerging victorious by 10 runs.
+In a thrilling encounter, Mumbai Indians (MI) edged out Royal Challengers Bangalore (RCB) by a single run in a closely contested Indian Premier League (IPL) 2026 match. The excitement was palpable as Sakib Hasan, the all-rounder for Mumbai, spent most of the match in the dugout, waiting for his team to make a breakthrough. Meanwhile, Malinga Mendis, the death bowling all-rounder for Royal Challengers Bangalore, was in top form, picking wickets at will. The momentum shifted in favour of MI when Ravindra Jadeja and Jasprit Bumrah took to the field in the final over, and Malinga was not about to let them get away. He delivered the knock of a lifetime, dismissing both batsmen and securing a thrilling win for MI. The win marked a crucial victory for the Indian side in the tournament.
