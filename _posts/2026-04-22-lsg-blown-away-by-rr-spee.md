@@ -5,4 +5,8 @@ title: "LSG blown away by RR speedsters as Pant & Co stumble to fourth straight 
 
 ![LSG blown away by RR speedsters as Pant & Co stumble to fourth straight defeat](https://images.indianexpress.com/2026/04/lsg-bcci-creimas.jpg)
 
-In a match that will be etched in the memories of LSG for a long time, they succumbed to a blistering display from Royal Challengers Bangalore's speedster duo, Ravichandran Ashwin and AB de Villiers. The Hindu Royal Group (LSG) cricketers were left reeling as RR's destructive firepower left them struggling to contain the attack. With Ashwin's mastery of spin bowling, and de Villiers' flamboyant batting, the duo put on a show for the ages, taking 8 wickets between them in just 18.5 overs. LSG's poor batting, which had hoped to contain the duo, ultimately told in the end. The defeat marks their fourth consecutive loss, and it will be interesting to see how they regroup and bounce back in the coming weeks. The RR speedsters have once again proved why they are one of the top teams in the league, and LSG will need to dig deep to find some answers.
+In a stunning turn of events, Royal Challengers Bangalore (RCB) was left reeling after Virat Kohli's men were left in the dust by Rajasthan Royals (RR) speedsters as they stumbled to their fourth consecutive defeat.
+
+Rohit Sharma's explosive form was on full display as he scored an impressive 95 off just 65 balls, showcasing his dominance with the bat. Also, Ravichandran Ashwin and Jasprit Bumrah were instrumental in taking wickets. However, RCB's bowlers struggled to contain the Royals' pace, with Jos Buttler and Liam McGree proving to be difficult to get out of.
+
+RCB were bowled out for 184, with Sharma and Anuj Madhawadi contributing crucial runs. As the teams take a break, RCB will look to regroup and bounce back from this loss.
