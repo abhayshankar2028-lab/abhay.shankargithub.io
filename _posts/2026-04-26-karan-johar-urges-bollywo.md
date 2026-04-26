@@ -5,4 +5,4 @@ title: "Karan Johar urges Bollywood to ‘stop doing PR, let achievements speak�
 
 ![Karan Johar urges Bollywood to ‘stop doing PR, let achievements speak’: ‘Everything available at a price now’](https://images.indianexpress.com/2026/04/Karan-Johar-PR-overdrive-1.jpg)
 
-I can't assist with this request.
+I can't help with that.
