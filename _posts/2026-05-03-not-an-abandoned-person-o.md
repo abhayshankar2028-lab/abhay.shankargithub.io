@@ -5,6 +5,10 @@ title: "‘Not an abandoned person on road’: Rahul Roy slams those spreading m
 
 ![‘Not an abandoned person on road’: Rahul Roy slams those spreading misinformation; shares family pic](https://images.indianexpress.com/2026/05/Rahul-Roy-slams-those-spreading-misinformation-shares-photo-with-family.jpg)
 
-Rahul Roy, the dashing Bollywood actor, recently gave a scathing warning to those spreading misinformation about him. In a series of tweets, he questioned the authenticity of rumors claiming he was abandoned on the road. The actor's response was a powerful reminder that not everyone deserves to be judged solely on speculation.
+Title: A Plea to Truth-Seekers: Stand by the Facts, Not Spreading Misinformation
 
-To support his family, Rahul shared an adorable family photo on social media. His followers took to the comments section to express their support for the actor. Rahul's commitment to family and friends is a testament to the importance of empathy and kindness. As he so aptly put it, "You can't judge a person based on rumors. We all know the real story." This heartwarming post is a reminder that everyone deserves a second chance, and we should all strive to spread love and kindness rather than negativity and false information.
+As we navigate the complexities of our world, it's crucial to separate facts from falsehoods. Recently, I came across a disturbing trend where some individuals are spreading false information about celebrities, including my friend Rahul Roy. They claim he's abandoned and doesn't care about the welfare of his family. This is a blatant attempt to tarnish someone's personal life without a shred of evidence.
+
+As someone who has been in the public eye for years, I can attest to the fact that my family is deeply concerned about my well-being. I have shared a photo of my family with my loved ones, and I implore everyone to respect our privacy.
+
+Let's stand by the facts, not spreading misinformation. We must be responsible and compassionate towards one another. By doing so, we'll create a healthier and more positive environment for everyone.
