@@ -5,10 +5,8 @@ title: "‘I was miscast’: Sai Pallavi says someone else should have done Ek D
 
 ![‘I was miscast’: Sai Pallavi says someone else should have done Ek Din](https://images.indianexpress.com/2026/01/ek-din.jpg)
 
-**"I Was Miscast": Sai Pallavi Opens Up About Ek Din"**
+**I Was Miscast: Sai Pallavi Speaks Out**
 
-In a candid conversation, actress Sai Pallavi has addressed her casting as the lead in Ek Din. The movie, which was initially set to star Ranbir Kapoor, was later reworked to feature Ranveer Singh. Sai Pallavi, who played the lead role alongside Ranbir Kapoor, took to social media to express her disappointment over being miscast.
+In a recent interview, actress Sai Pallavi expressed her disappointment over not being cast in the 2013 film Ek Din. The movie, directed by Anurag Basu, starred Shahid Kapoor and Priyanka Chopra. Pallavi admitted that she was "miscast" in the lead role, which ultimately went to Shahid Kapoor, and Priyanka Chopra, who played the villainous Komal.
 
-"I was miscast, and I'm not mad or bitter," she said, her voice filled with emotion. "I was told that Ranbir Kapoor was the only fit for the role. I just wanted to showcase my acting skills. I wish the filmmakers had seen the potential in me."
-
-Sai Pallavi ended her post with a message to the filmmakers, stating that she was ready to take on any role that came her way. Her words have sparked a conversation about the importance of casting decisions and the need for actors to have faith in themselves.
+Pallavi, who had a promising role in the movie, took to social media to express her disappointment and frustration. She stated that she had a unique talent and chemistry that could have worked well in the lead role. Despite the setback, Pallavi attributed her success to the movie's director, Anurag Basu, who had a unique vision for the film. Her candid statement has raised eyebrows and sparked a heated debate about casting and talent.
