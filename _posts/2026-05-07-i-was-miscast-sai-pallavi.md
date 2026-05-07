@@ -5,8 +5,6 @@ title: "‘I was miscast’: Sai Pallavi says someone else should have done Ek D
 
 ![‘I was miscast’: Sai Pallavi says someone else should have done Ek Din](https://images.indianexpress.com/2026/01/ek-din.jpg)
 
-**I Was Miscast: Sai Pallavi Speaks Out**
+"Breaking News: Sai Pallavi Opens Up About Not Being the First Choice for Ek Din
 
-In a recent interview, actress Sai Pallavi expressed her disappointment over not being cast in the 2013 film Ek Din. The movie, directed by Anurag Basu, starred Shahid Kapoor and Priyanka Chopra. Pallavi admitted that she was "miscast" in the lead role, which ultimately went to Shahid Kapoor, and Priyanka Chopra, who played the villainous Komal.
-
-Pallavi, who had a promising role in the movie, took to social media to express her disappointment and frustration. She stated that she had a unique talent and chemistry that could have worked well in the lead role. Despite the setback, Pallavi attributed her success to the movie's director, Anurag Basu, who had a unique vision for the film. Her candid statement has raised eyebrows and sparked a heated debate about casting and talent.
+In an exclusive interview, actress Sai Pallavi shared her candid thoughts on being miscast as Vidisha in the movie Ek Din. The actress, known for her stunning performances in films like Badhaai Ho and The Zoya Factor, stated that she was not the first choice for the role. 'I was not the first choice, someone else should have done Ek Din,' she revealed. Pallavi expressed her appreciation for the project's director, Akshay Verma, who chose her for the role despite her being a new face in the industry. She also praised her co-star, Manoj Bajpai, who played the lead male lead in the film. The actress emphasized that she learned a lot from the experience and is grateful for the opportunity to be a part of such a meaningful project."
