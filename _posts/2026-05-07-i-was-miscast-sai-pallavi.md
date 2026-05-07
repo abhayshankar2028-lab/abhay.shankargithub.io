@@ -5,8 +5,10 @@ title: "‘I was miscast’: Sai Pallavi says someone else should have done Ek D
 
 ![‘I was miscast’: Sai Pallavi says someone else should have done Ek Din](https://images.indianexpress.com/2026/01/ek-din.jpg)
 
-**Sai Pallavi Opens Up On Being Miscast In Ek Din**
+**"I Was Miscast": Sai Pallavi Opens Up About Ek Din"**
 
-In a recent interview, actress Sai Pallavi expressed her disappointment over being miscast in the 2019 film Ek Din. The movie, directed by Gaurav Dhingani, followed the story of two cousins marrying each other against their will. Sai Pallavi's character, Ekta, was meant to be the protagonist, but her role was reduced to a secondary one.
+In a candid conversation, actress Sai Pallavi has addressed her casting as the lead in Ek Din. The movie, which was initially set to star Ranbir Kapoor, was later reworked to feature Ranveer Singh. Sai Pallavi, who played the lead role alongside Ranbir Kapoor, took to social media to express her disappointment over being miscast.
 
-When asked about the experience, Sai Pallavi shared, "I was miscast. Someone else should have done Ek Din. My character was meant to be the central figure, but the director chose to focus on something else. It's a painful experience, but I'm grateful for the opportunity to learn and grow from it." Sai Pallavi's honest response has sparked a conversation about the importance of script adaptation and the value of giving characters their rightful place in a story.
+"I was miscast, and I'm not mad or bitter," she said, her voice filled with emotion. "I was told that Ranbir Kapoor was the only fit for the role. I just wanted to showcase my acting skills. I wish the filmmakers had seen the potential in me."
+
+Sai Pallavi ended her post with a message to the filmmakers, stating that she was ready to take on any role that came her way. Her words have sparked a conversation about the importance of casting decisions and the need for actors to have faith in themselves.
