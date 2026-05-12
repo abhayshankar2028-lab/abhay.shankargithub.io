@@ -5,6 +5,8 @@ title: "‘Dhurandhar is not real’: Mohan Kapur couldn’t understand why peop
 
 ![‘Dhurandhar is not real’: Mohan Kapur couldn’t understand why people are praising film so much](https://images.indianexpress.com/2026/05/Dhurandhar-Mohan-kapur.jpg)
 
-**"Dhurandhar is not real": Mohan Kapur's Scathing Commentary**
+**"Dhurandhar is not real": Mohan Kapur's Unsettling Reality**
 
-In an explosive interview, Bollywood actor Mohan Kapur has unleashed his scathing critique on the film "Dhurandhar" - a movie that has been touted as one of the best films of Bollywood. Kapur, known for his sharp wit and sharp tongue, expressed his confusion as to why audiences are praising the film so intensely. "Dhurandhar is not real" is his clever way of saying that the film lacks substance, and the praise being showered upon it is nothing short of masala-bazaar magic. Kapur's words are laced with sarcasm and mockery, as he takes aim at the film's predictable plot, wooden acting, and crass dialogue. His harsh commentary has sparked a lively debate on social media, with many defending the film's fans and others praising Kapur's boldness.
+In the midst of the highly anticipated film "Dhurandhar", a question has been plaguing me - is this film truly a masterpiece, or just another product of the Bollywood machine? Mohan Kapur, the director of this film, has been making waves with his thought-provoking narrative, but one cannot help but wonder if the praise is genuine or just a clever marketing ploy.
+
+As I delve deeper into the world of "Dhurandhar", I'm constantly reminded of the cyclical nature of this phenomenon - the same old tropes and cliches are being rehashed, and the audience is eating it up. The question is, can we truly call this film a "masterpiece" when it feels like more of the same?
