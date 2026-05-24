@@ -1,12 +1,12 @@
 ---
 layout: post
-title: "LIVE Cricket Score, IPL 2026 KKR vs DC Match Live: Kolkata take on Delhi in must-win match at Eden Gardens"
+title: "LIVE Cricket Score, IPL 2026 KKR vs DC Match Live: Can Kolkata qualify for playoffs?"
 ---
 
-![LIVE Cricket Score, IPL 2026 KKR vs DC Match Live: Kolkata take on Delhi in must-win match at Eden Gardens](https://images.indianexpress.com/2026/05/KKR-DC-LIVE.jpg)
+![LIVE Cricket Score, IPL 2026 KKR vs DC Match Live: Can Kolkata qualify for playoffs?](https://images.indianexpress.com/2026/05/KKR-DC-LIVE.jpg)
 
-**LIVE Cricket Score, IPL 2026 KKR vs DC Match Live: Kolkata Take on Delhi in Must-Win Match at Eden Gardens**
+** LIVE Cricket Score, IPL 2026 KKR vs DC Match Live: Can Kolkata qualify for playoffs? **
 
-The highly anticipated Indian Premier League (IPL) 2026 matchup between Kolkata Knight Riders (KKR) and Delhi Capitals (DC) is underway at Eden Gardens in Kolkata. The electric atmosphere is building as the two teams clash in a must-win match. KKR are looking to secure their 6th IPL title, while DC aim to bounce back from a losing start to the season.
+The Indian Premier League (IPL) 2026 is just a few days away, but the excitement is building in Kolkata as the Kolkata Knight Riders (KKR) take on the Delhi Capitals (DC). The match is underway, and the energy in the MCG is palpable. As we witness the thrilling battle between these two teams, one thing is clear - only one can emerge victorious.
 
-The match is underway, with KKR captain, Chris Gayle, at the helm. The Kolkata crowd is on the edge of their seats as the two teams engage in a thrilling start. With the score still 0-0, the momentum is yet to shift. Will KKR's strong batting line be enough to seal the win, or will DC's potent bowling attack prevail? We'll be bringing you live updates and scores throughout the match. Stay tuned for the action!
+With a strong batting lineup and a solid bowling attack, the KKR have a glimmer of hope. However, the DC are no strangers to a comeback, and their star player, Rashid Khan, is looking fierce. Can the DC's potent attack overpower the KKR's solid defensive? Stay tuned to our live coverage to find out! Will the KKR qualify for the playoffs, or will the DC take home the title? The suspense is killing us!
