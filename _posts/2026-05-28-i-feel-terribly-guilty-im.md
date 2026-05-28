@@ -5,8 +5,8 @@ title: "‘I feel terribly guilty’: Imtiaz Ali on fans leaving careers after w
 
 ![‘I feel terribly guilty’: Imtiaz Ali on fans leaving careers after watching Tamasha](https://images.indianexpress.com/2026/05/Tmasha.jpg)
 
-**I Feel Terribly Guilty**: Imtiaz Ali on Fans Leaving Careers After Watching Tamasha
+**Title:** "A Guilty Conscience: Imtiaz Ali Reflects on Tamasha's Fallout"
 
-In a recent interview, renowned Bollywood director Imtiaz Ali opened up about his concerns regarding the impact of his film Tamasha on his fans. The movie, released in 2012, revolves around a young musician who marries a wealthy woman, but ultimately falls in love with his estranged sister. According to Ali, many of his fans have expressed frustration and disappointment after watching the film, citing its perceived lack of social relevance and emotional depth.
+As a renowned Indian film director, Imtiaz Ali has witnessed his fair share of ups and downs in the Bollywood industry. Recently, he talked about his experience with his 2016 film, Tamasha. He shared that his critics often left their careers after watching the film, citing its "imperfect" balance of romance and action.
 
-Ali shared, "I feel terribly guilty for the hurt that I may have caused some of my fans. I want my movies to be meaningful, to make people think, not just entertain them." He emphasized that his intention was to explore the complexities of human relationships, but ultimately, the film's message fell flat. The director's heartfelt response has sparked a conversation about the responsibility that comes with creating art, especially in the context of Bollywood.
+Allying with his feelings, Imtiaz admitted that he felt guilty about the effect the film had on his fans. "I felt like I had done them a disservice by making a film that didn't align with their expectations," he said. He also mentioned that the film's "turbulent" ending made fans feel uneasy, which led to a backlash against the movie. Despite this, Imtiaz took the feedback and used it to improve his craft, ultimately creating a better movie with his subsequent films.
